@@ -1,0 +1,1 @@
+Generar toda las cosas con la memoria, refuerza lo aprendio.
